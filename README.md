@@ -1,6 +1,7 @@
-@5th-child 
+@3rd & 5th child .  
 
-![image](https://github.com/NAAKY0/NAAKY0/assets/144959712/c5d2faa7-1900-43e0-be2f-f72432cf79db)
+![image](https://github.com/NAAKY0/NAAKY0/assets/144959712/c5d2faa7-1900-43e0-be2f-f72432cf79db) ![image](https://github.com/NAAKY0/NAAKY0/assets/144959712/207a08da-330e-42e1-a767-e0961edf6048)
+
 
 <!--
 **NAAKY0/NAAKY0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
