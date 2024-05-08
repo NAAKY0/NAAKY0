@@ -4,5 +4,5 @@
 <p>feel free 2 ask for the supporters thing; please whisper me for so i dont bite !! </p>
 <p><img src="https://file.garden/Zdo7L-gxzVCR--Zn/weezer1.png" class="align-self-center" style="width: 80%;"></p>
 <p><img src="https://file.garden/Zdo7L-gxzVCR--Zn/80228697_FHr3blHlY4dRQo5.gif" class="align-self-center" style="width: 50%;"></p>
-
+<p><center><i>art/animation by me :'3</i>i</p>
 
