@@ -3,7 +3,6 @@
 <p>Im a furry what else do i add to this, also an artist wahoo</p>
 <p>feel free 2 ask for the supporters thing; please whisper me for so i dont bite !! </p>
 <p>    <img src="https://file.garden/Zdo7L-gxzVCR--Zn/weezer1.png" class="align-self-center" style="width: 80%;"></p>
-<p>    <img src="![image](https://github.com/NAAKY0/NAAKY0/assets/144959712/c3f991a0-cada-456f-9289-b26641f0af95)
-" class="align-self-center" style="width: 50%;"></p>
+<p>    <img src="![image](https://github.com/NAAKY0/NAAKY0/assets/144959712/c3f991a0-cada-456f-9289-b26641f0af95)" class="align-self-center" style="width: 50%;"></p>
 
 
