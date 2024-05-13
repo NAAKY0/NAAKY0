@@ -2,6 +2,6 @@
 <p>Not sure what i'll put here but, Feel free 2 int with me!!! c+h is for anyone!! I gen want to meet new people but im quiet scared ^^'</p> 
 <p>Im a furry what else do i add to this, also an artist wahoo</p>
 <p><img src="https://file.garden/Zdo7L-gxzVCR--Zn/weezer1.png" class="align-self-center" style="width: 65%;"></p>
-<p><img src="https://file.garden/Zdo7L-gxzVCR--Zn/80228697_FHr3blHlY4dRQo5.gif" class="align-self-center" style="width: 50%;"></p>
+[<p><img src="https://file.garden/Zdo7L-gxzVCR--Zn/80228697_FHr3blHlY4dRQo5.gif" class="align-self-center" style="width: 50%;"></p>](https://toyhou.se/NAAKY0)
 <p><center><i>art/animation by me :'3</i></p>
 
