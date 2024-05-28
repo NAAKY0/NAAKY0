@@ -7,4 +7,3 @@
 <p><img src="https://file.garden/Zdo7L-gxzVCR--Zn/weezer1.png" class="align-self-center" style="width: 65%;"></p>
 <p><center><i>art by me :'3</i></p>
 <p>i hate rei btw https://rentry.co/reiawareness </p>
-<p>also this guy is fucked up https://rentry.co/amiacallout</p>
