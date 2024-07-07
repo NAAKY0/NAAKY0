@@ -1,2 +1,2 @@
-<p><align=center> DO YOUR DAILY CLICK !! ! →→ https://arab.org/click-to-help/palestine/<p>
+<p <align=center> daily click https://arab.org/click-to-help/palestine/ ! >
 
