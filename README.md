@@ -3,3 +3,4 @@
 <p align=center> Sign my <a href="https://alienstage.atabook.org/">atabook</a> or draw on my <a href="https://naaky0.straw.page/">strawpage!</a> 
 <p align=center> <a href="https://rentry.co/ponytownillness">.co/ponytownillness</a>✦ <a href="https://rentry.co/carouselnightdevs">me & my gang</a>〃 <a href="https://x.com/carouselnights">CarouselNight</a> 
 <p align=center> <a href="https://toyhou.se/NAAKY0">Toyhouse</a>
+<p align=center>![](https://files.catbox.moe/nfo4md.png)
