@@ -4,4 +4,4 @@
 <p align=center> <a href="https://rentry.co/ponytownillness">.co/ponytownillness</a>✦ <a href="https://rentry.co/carouselnightdevs">me & my gang</a>〃 <a href="https://x.com/carouselnights">CarouselNight</a> 
 <p align=center> <a href="https://toyhou.se/NAAKY0">Toyhouse</a>
 <p align=center> <body><img src="https://files.catbox.moe/nfo4md.png" alt="Trulli"</body>
-<p align=center> @NAAKY0 @AlienStage @Childhoodend @achewan @starsour @wave-to-earth @5th-child
+<p align=center> @NAAKY0 ㅤ ㅤ@AlienStage ㅤ ㅤ@Childhoodend ㅤ ㅤ@achewan ㅤ ㅤ@starsour ㅤ ㅤ@wave-to-earth ㅤ ㅤ@5th-child
