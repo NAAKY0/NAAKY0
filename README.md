@@ -1,6 +1,6 @@
 <p align=center> remember your <a href="https://arab.org/click-to-help/palestine/"> daily click! 🍉</a>
   <p align=center> follow my bsky / toyhouse i do art & i post there yay
-    <p align=center> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/96799292_0pukj3xniPodAvH.gif" alt="art by Viliekitte">
+    <p align=center> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/96799292_0pukj3xniPodAvH.gif" alt="art by Viliekitte" style="width: 190px;">
 
 
 
