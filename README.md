@@ -1,6 +1,6 @@
 <p align=center> remember your <a href="https://arab.org/click-to-help/palestine/"> daily click!</a> 🍉
   <p align=center> follow my bsky / toyhouse i do art & i post there!!! yay!!! 
-    <p align=center> <img="https://f2.toyhou.se/file/f2-toyhou-se/images/110020538_IiRz1ndj0TEbpHH.png?1762773535" style="width: 300px;">
+    <p align=center> <img src="https://f2.toyhou.se/file/f2-toyhou-se/images/110020538_IiRz1ndj0TEbpHH.png?1762773535" style="width: 300px;">
 <p align=center> ✦ <a href="https://toyhou.se/Eskeri">art by Eskeri</a> ✦
 <p align=center> <img src=https://komarev.com/ghpvc/?username=NAAKY0&color=d59740&style=flat-square&label=scoobysnacks+that+I+get&base=2000>
 <p align=center> Sign my <a href="https://alienstage.atabook.org/">atabook</a> or draw on my <a href="https://naaky0.straw.page/">strawpage!</a> 
