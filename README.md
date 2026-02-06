@@ -7,6 +7,5 @@
 <p align=center> Sign my <a href="https://alienstage.atabook.org/">atabook</a> or draw on my <a href="https://naaky0.straw.page/">strawpage!</a> 
 <p align=center> <a href="https://rentry.co/nanitesacid"> rentry1 </a> ✦ <a href="https://rentry.co/-marcus-"> rentry2</a> ✦ <a href="https://rentry.co/ponytownillness">.co/ponytownillness</a> ✦ <a href="https://x.com/carouselnights">CarouselNight</a> ✦ <a href="https://toyhou.se/NAAKY0">Toyhouse</a>
 
-<p align=center> <a href="https://rentry.co/carouselnightdevs">me & my gang</a>
-
-<p align=center> <a href="https://web.archive.org/web/20240523074239/https://rentry.co/reiawareness">rei awareness</a>
+<p align=center> <a href="https://rentry.co/carouselnightdevs">me & my gang</a> ✦ <a href="https://web.archive.org/web/20240523074239/https://rentry.co/reiawareness">rei awareness</a>
+<p align=center>  https://steam-current-game.vercel.app/api/?steamids=76561199038830797
