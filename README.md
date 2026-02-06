@@ -8,4 +8,3 @@
 <p align=center> <a href="https://rentry.co/nanitesacid"> rentry1 </a> ✦ <a href="https://rentry.co/-marcus-"> rentry2</a> ✦ <a href="https://rentry.co/ponytownillness">.co/ponytownillness</a> ✦ <a href="https://x.com/carouselnights">CarouselNight</a> ✦ <a href="https://toyhou.se/NAAKY0">Toyhouse</a>
 
 <p align=center> <a href="https://rentry.co/carouselnightdevs">me & my gang</a> ✦ <a href="https://web.archive.org/web/20240523074239/https://rentry.co/reiawareness">rei awareness</a>
-<p align=center <a href="Steam Current Game">https://steam-current-game.vercel.app/api/?steamids=76561199038830797</a>
