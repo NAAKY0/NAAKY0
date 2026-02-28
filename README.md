@@ -1,6 +1,6 @@
 <p align=center> remember your <a href="https://arab.org/click-to-help/palestine/"> daily click!</a> 🍉
   <p align=center> follow me on toyhouse (most active) or bluesky, i do art & post there !! :3c  
-    <p align="center"> <img src="https://f2.toyhou.se/file/f2-toyhou-se/images/114339484_iG36A7MkNwVVQtO.png?1770138095" width="420"></p>
+    <p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/many%20apples.png" width="420"></p>
 <p align=center> ✦ <a href="https://toyhou.se/NAAKY0">art by me</a> ✦
   
 <p align=center> <img src=https://komarev.com/ghpvc/?username=NAAKY0&color=d59740&style=flat-square&label=scoobysnacks+that+I+get&base=2000>
