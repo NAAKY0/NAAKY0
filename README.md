@@ -6,10 +6,5 @@
     <p align=center> if any limbus player wish to add me :3c go crazy here is my id J189293934
     <p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/117320704_rlQv4169cdtvuX9.png" width="420">  <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=axy5w50rrg44qmscakgbkierm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false"></a> </p>
-<p align=center> ✦ <a href="https://toyhou.se/RemaerDayArc">art by RemaerDayArc</a> ✦  <p align=center> <img src=https://komarev.com/ghpvc/?username=NAAKY0&color=d59740&style=flat-square&label=scoobysnacks+that+I+get&base=2000>
-
-<p align=center> <img src=https://komarev.com/ghpvc/?username=NAAKY0&color=d59740&style=flat-square&label=scoobysnacks+that+I+get&base=2000>
+<p align=center> <a href="https://toyhou.se/RemaerDayArc">art by RemaerDayArc</a> ✦ <img src=https://komarev.com/ghpvc/?username=NAAKY0&color=d59740&style=flat-square&label=scoobysnacks+that+I+get&base=2000>
 <p align=center> <a href="https://snagharpoon.atabook.org/">atabook</a> ✦ <a href="https://rentry.co/nanitesacid"> outdated rentry </a> ✦ <a href="https://rentry.co/ponytownillness">.co/ponytownillness</a> ✦ <a href="https://toyhou.se/NAAKY0">Toyhouse</a>
- <p align="center">
- aaaa
-</p>
