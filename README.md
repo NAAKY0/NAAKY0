@@ -1,4 +1,4 @@
-<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=meow+meow+meooooow)](https://git.io/typing-svg)
+<p alight="center"> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F78734&width=435&lines=Meow+meow+meoww)](https://git.io/typing-svg)
 <p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/many%20apples.png" width="700"></p>
 <p align=center> <a href="https://toyhou.se/NAAKY0">art by me</a> ✦  <a href="https://rentry.co/llhmgesellschaft"> < llhm 3 </a>
 <p align=center> remember your <a href="https://arab.org/click-to-help/palestine/"> daily click!</a> 🍉
