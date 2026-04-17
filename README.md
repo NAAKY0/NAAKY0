@@ -1,4 +1,4 @@
-<p align="center"><img src="https://steam-current-game.vercel.app/api/?steamids=<76561199038830797>" alt="Steam Status">
+<p align="center"><img src="https://steam-current-game.vercel.app/api/?steamids=76561199038830797" alt="Steam Status">
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F78734&center=true&width=435&lines=Meow+meow+meoww" alt="Typing SVG" /></a>
 <p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/many%20apples.png" width="700"></p>
