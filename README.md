@@ -1,6 +1,6 @@
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F78734&center=true&width=435&lines=Meow+meow+meoww" alt="Typing SVG" /></a>
-<p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/The_Pequod_Captain_Ishmael_Idle_Animation.gif" width="700"></p>
+<p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/The_Pequod_Captain_Ishmael_Idle_Animation.gif" width="200"></p>
 <p align=center> remember your <a href="https://arab.org/click-to-help/palestine/"> daily click!</a> 🍉
   <p align=center> Mainly at docks, the corner right of the map (four benches) or the PM area ✦ Whisper to int mainly! please, i dont look at the chat im off tab most of the time. C+H freely unless im with my friends, common madias pls do int !! i love people!! im shy tho
     <p align=center> I block & hide freely, if you're acting weird/doing something that brings a topic that makes me uncomfortable or got a skin of some weird shit media I will hide you. Also keep spoilers away from me as im typing this i have yet to play LoR & slowly playing canto 9 & tbh focused on LobCorp lately.. !! i generally dont want LoR spoilers tbf 
