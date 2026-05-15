@@ -1,5 +1,5 @@
 
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F78734&center=true&width=435&lines=did+you+know+that+limes+float+and+lemons+sink" alt="Typing SVG" /></a>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F78734&center=true&width=9000&lines=did+you+know+that+limes+float+and+lemons+sink" alt="Typing SVG" /></a>
 <p align="center"> <img src="https://files.catbox.moe/1emaey.gif" width="200"></p>
 <p align=center> remember your <a href="https://arab.org/click-to-help/palestine/"> daily click!</a> 🍉
   <p align=center> Mainly at docks, the corner right of the map (four benches) or the PM area ✦ Whisper to int mainly! please, i dont look at the chat im off tab most of the time. C+H freely unless im with my friends, common madias pls do int !! i love people!! im shy tho.. 
