@@ -1,4 +1,4 @@
-<p align="center"> Find me on <a="https://artfight.net/~NAAKY0">ARTFIGHT!</a> Im on team COMEDY this year !! ! !
+<p align="center"> Find me on <a href="https://artfight.net/~NAAKY0">ARTFIGHT!</a> Im on team COMEDY this year !! ! !
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F78734&center=true&width=900&lines=did+you+know+that+lemons+float+and+limes+sink" alt="Typing SVG" /></a>
 <p align="center"> <img src="https://files.catbox.moe/1emaey.gif" width="200"></p>
 <p align=center> remember your <a href="https://arab.org/click-to-help/palestine/"> daily click!</a> 🍉
